@@ -1,1 +1,0 @@
-Canada Doc Requirements
